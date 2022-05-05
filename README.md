@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ajaytamta
+- 👋 Hi, I’m @ajay
 - 👀 I’m interested in canva
 - 🌱 I’m currently learning canva
 - 💞️ I’m looking to collaborate on canva
